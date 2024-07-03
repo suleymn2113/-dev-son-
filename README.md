@@ -1,0 +1,2 @@
+# -dev-son-
+çok satanalar 
